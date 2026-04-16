@@ -1,2 +1,4 @@
-# one_educated_retro_right_winger
+# One Educated Retro Right Winger
 A short comic strip of a man turned really right. 
+---------------------------------------------------
+
